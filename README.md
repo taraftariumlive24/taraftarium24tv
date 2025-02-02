@@ -1,5 +1,5 @@
 # Fenerbahçe - Çaykur Rizespor Maçı Hakkında Detaylı Bilgiler
-
+[Taraftarium24 canlı maç izle giriş için tıklayın](https://macvartv.shop)
 Fenerbahçe ile Çaykur Rizespor arasındaki mücadele, Süper Lig’in heyecan verici karşılaşmalarından biri olacak. İşte maç hakkında tüm detaylar:
 
 1. Maçın Tarihi ve Saati
